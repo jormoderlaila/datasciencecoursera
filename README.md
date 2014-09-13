@@ -7,5 +7,5 @@ Mit kursus Juli 2014.
 *Håber jeg får lært det denne gang! :-)*
 
 
-
+:smiley:
 
